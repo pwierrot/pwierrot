@@ -1,8 +1,9 @@
 
 <p align="center">
   
-<img src="https://i.pinimg.com/originals/12/b0/80/12b080489b6641a6f6454280fd6a9b5e.gif" />
+<img src="![WE ARE THE PIERROTLINGS!! PLEASE FEED USS!!!! (1)](https://github.com/user-attachments/assets/79d7f9ea-65f2-4228-a935-f4605aaeb213)
+" />
 </p>
 
 <p align="center">
-go follow these <a href="https://github.com/kittydummy">tasty</a> <a href="https://bsky.app/profile/did:plc:oibf3fmrtpil5z2b6br5l2tw">shawarma's</a> theyre so yummy
+
