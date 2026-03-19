@@ -1,9 +1,8 @@
 
 <p align="center">
   
-<img src="![WE ARE THE PIERROTLINGS!! PLEASE FEED USS!!!! (1)](https://github.com/user-attachments/assets/79d7f9ea-65f2-4228-a935-f4605aaeb213)
-" />
+<img src="https://i.pinimg.com/736x/90/2b/4f/902b4f224ef7a7b83153c89ad7b5b3dd.jpg" />
 </p>
 
 <p align="center">
-
+pierrot lover ok
