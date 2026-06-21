@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">
-pierrot lover ok
-any pier dbls or yumes dni plzz
+pierrot kisser
+any pier dbls or yumes dni
