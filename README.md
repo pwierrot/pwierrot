@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">
-pierrot kisser
-any pier dbls or yumes dni
+pierrot nonhsaring yume
+any pier dbls or other yumes dni
