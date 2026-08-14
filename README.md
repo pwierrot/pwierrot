@@ -1,9 +1,14 @@
 
 <p align="center">
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cee0cda9-1b34-42e7-9a3b-f9c3fdc9797f/dmiuzob-847e2d07-8838-4f4b-8d8d-84e460700f84.png/v1/fill/w_958,h_173/image_ab1a_gradientmap_pro_removebg_preview_by_daintymwinii2_dmiuzob-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTczIiwicGF0aCI6Ii9mL2NlZTBjZGE5LTFiMzQtNDJlNy05YTNiLWY5YzNmZGM5Nzk3Zi9kbWl1em9iLTg0N2UyZDA3LTg4MzgtNGY0Yi04ZDhkLTg0ZTQ2MDcwMGY4NC5wbmciLCJ3aWR0aCI6Ijw9OTU4In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.FmXlKyuFez6LVCs-jC4uVoN4NSCzVre1vQKrpCImrnM" />
+<img src="https://64.media.tumblr.com/1f694dd87861d6e54804aef545d308ed/9e2fca3d59303192-da/s2048x3072/ce7b817936f0d27837f578ca6dce5b5e35d25296.pnj" />
 </p>
+
 <p align="center">
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cee0cda9-1b34-42e7-9a3b-f9c3fdc9797f/dmiuzob-a3a3d8b7-e2fc-482d-a5ff-0015b5703d04.png/v1/fill/w_500,h_500/image_ab1a_gradientmap_pro_removebg_preview_by_daintymwinii2_dmiuzob-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTAwIiwicGF0aCI6Ii9mL2NlZTBjZGE5LTFiMzQtNDJlNy05YTNiLWY5YzNmZGM5Nzk3Zi9kbWl1em9iLWEzYTNkOGI3LWUyZmMtNDgyZC1hNWZmLTAwMTViNTcwM2QwNC5wbmciLCJ3aWR0aCI6Ijw9NTAwIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.DskO_VFscNNHk3yNTCxaw1_F67e7oQTXwu9_k2DRn_o" />
+<img src="https://64.media.tumblr.com/10d09ea8f1e2252bd53f48c5f127f706/449ce3f8e030d4fe-a4/s2048x3072/132c0d5da79f2cc3e36f6bbb0f812b92b8ffe254.gifv" width="299" />
 </p>
+
+<p align="center">
+<img src="https://64.media.tumblr.com/1f694dd87861d6e54804aef545d308ed/9e2fca3d59303192-da/s2048x3072/ce7b817936f0d27837f578ca6dce5b5e35d25296.pnj" />
+  
 <p align="center">
 this is spam following account, block if unwanted.
